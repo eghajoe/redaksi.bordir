@@ -1,1 +1,0 @@
-# redaksi.bordir
